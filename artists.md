@@ -1,2 +1,2 @@
-##Micky Newbury
+## Micky Newbury - 33rd of August
 Metallica
